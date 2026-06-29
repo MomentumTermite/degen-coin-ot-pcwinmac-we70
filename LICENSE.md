@@ -1,4 +1,4 @@
-# 
+# Exclusif degen coin sniper bot plugins pour Mac OS | Personnalisé degen coin sniper bot plugins pour PC Windows. Avec protection stop-loss et accès rapide au mempool — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
